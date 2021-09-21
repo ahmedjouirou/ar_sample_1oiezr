@@ -1,1 +1,0 @@
-# ar_sample_1oiezr
